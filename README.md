@@ -50,3 +50,10 @@ https://user-images.githubusercontent.com/76794210/204084237-27a53c17-91aa-41c4-
 https://user-images.githubusercontent.com/76794210/204088366-ebb6c35b-b3ee-40fe-8bcf-f5ab96713c95.mp4
 
 
+
+<h3>(coockie task) i delivered this task before... but without counter, so i added counter here</h3>
+
+
+
+https://user-images.githubusercontent.com/76794210/204090438-229abce2-c7fa-44e9-9c72-77c1abaec3c9.mp4
+
