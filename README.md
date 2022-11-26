@@ -42,3 +42,11 @@ https://user-images.githubusercontent.com/76794210/204084237-27a53c17-91aa-41c4-
 
 
 
+<h2> task B.3 (simple form)</h2>
+
+
+
+
+https://user-images.githubusercontent.com/76794210/204088366-ebb6c35b-b3ee-40fe-8bcf-f5ab96713c95.mp4
+
+
